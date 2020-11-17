@@ -1,0 +1,1 @@
+this is a recipe of sandwitch made from cooked dried vegetables.In this way vegetable would not be wasted.
